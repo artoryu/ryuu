@@ -1,1 +1,0 @@
-Micky mouse clock
